@@ -1,0 +1,6 @@
+Some key components include motivation, self- and other knowledge, and tolerance for uncertainty.
+Context Culture can influence whether communication is high or low context. In low context cultures, words convey most of the meaning. In high context cultures, meaning is conveyed by more subtle verbal and non-verbal cues.
+Effective cross-cultural Communication requires understanding cultural differences, language barriers, and stereotypes
+This type of communication also normalizes relations, such as non-verbal cues conveying when a person should speak or not speak. Finally, non- verbal communication can even alter a verbal message through mimics, gestures and facial expressions, particularly when people do not speak the same language.
+A classic example of intercultural communication is a multinational business meeting where participants from various cultural backgrounds come together. Each individual brings their own cultural norms, values, and communication styles to the table.
+Nonviolent Communication (NVC) is an approach to enhanced communication, understanding, and connection based on the principles of nonviolence and humanistic psychology. It is not an attempt to end disagreements, but rather a way that aims to increase empathy and understanding to improve the overall quality of life.
